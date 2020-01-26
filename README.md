@@ -1,2 +1,2 @@
 # Hello-Ivyshy
-These are two very important peoplein my life
+These are two very important people in my life
